@@ -1,0 +1,13 @@
+- **Reference / Inspiration ⬇️**
+  - [Image 1](https://wallhaven.cc/w/8xpvv2)
+  - [Image 2](https://wallhaven.cc/w/gj1r3l)
+  - [Image 3](https://wallhaven.cc/w/w8w1vx)
+  - [Image 4](https://wallhaven.cc/w/w8ryjp)
+  - [Image 5](https://wallhaven.cc/w/vmr7e8)
+  - [Image 6](https://wallhaven.cc/w/od29w9)
+  - [Image 7](https://wallhaven.cc/w/gjm78q)
+  - [Image 8](https://wallhaven.cc/w/5dm6m7)
+  - [Image 9](https://wallhaven.cc/w/2ko21m)
+  - [Image 10](https://wallhaven.cc/w/k9jvz6)
+  - [Image 11](https://wallhaven.cc/w/odywq7)
+  - [Image 12](https://wallhaven.cc/w/6qm737)
